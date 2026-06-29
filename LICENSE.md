@@ -1,4 +1,4 @@
-#  
+#  no-ban Scripts for restaurant tycoon 3 is the best restaurant tycoon 3 Script, featuring teleport and no clip. Safe and powerful for all your needs.
 
 
 
